@@ -1,0 +1,1 @@
+# grsu_pyton_kazak
